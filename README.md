@@ -5,4 +5,4 @@ Hi, dreamC!
 
 How do you feel about this?
 
-keep come and carry on. thx.
+keep calm and carry on. thx.
